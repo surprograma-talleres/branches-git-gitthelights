@@ -9,12 +9,12 @@ Donde el día esconde
 Lumbre de la tierra
 Ceniza de sol.
 
-Lapacho
-También en mi alma
+Roble
+También en mi corazon
 La vida
 Sembró su color.
 Un árbol
-Borracho de sueños
+Ebrio de sueños
 Con ramas de viento
 Crecido en el monte
 De mi corazón.
