@@ -1,11 +1,13 @@
-### [Tornado of lapacho](https://www.youtube.com/watch?v=i-mwsUGBzI4) - Ramón Ayala
+### [Ánga of lapacho](https://www.youtube.com/watch?v=i-mwsUGBzI4) - Ramón Ayala
 
-This morning I made the call
-The one that ends it all
-Hanging up, I wanted to cry
-But dammit, this well's gone dry
-Not for the money, not for the fame
-Not for the power, just no more games
+## Y se va la segunda
+:boom:
+
+Lapacho
+Solito en el monte
+Donde el día esconde
+Lumbre de la tierra
+Ceniza de sol.
 
 Lapacho
 También en mi alma
