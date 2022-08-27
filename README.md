@@ -9,15 +9,10 @@ Donde el día esconde
 Lumbre de la tierra
 Ceniza de sol.
 
-Roble
-También en mi corazon
-La vida
-Sembró su color.
-Un árbol
-Ebrio de sueños
-Con ramas de viento
-Crecido en el monte
-De mi corazón.
+You'll take my life, but I'll take yours too
+You'll fire your musket, but I'll run you through
+So when you're waiting for the next attack
+You'd better stand, there's no turning back
 
 Pájaro de amor
 Fruta de pasión
