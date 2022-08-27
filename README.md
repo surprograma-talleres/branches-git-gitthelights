@@ -1,10 +1,11 @@
-### [Alma de lapacho](https://www.youtube.com/watch?v=i-mwsUGBzI4) - Ramón Ayala
+### [Tornado of lapacho](https://www.youtube.com/watch?v=i-mwsUGBzI4) - Ramón Ayala
 
-Lapacho
-Solito en el monte
-Donde el día esconde
-Lumbre de la tierra
-Ceniza de sol.
+This morning I made the call
+The one that ends it all
+Hanging up, I wanted to cry
+But dammit, this well's gone dry
+Not for the money, not for the fame
+Not for the power, just no more games
 
 Lapacho
 También en mi alma
